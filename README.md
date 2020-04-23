@@ -1,2 +1,0 @@
-# Akhmad-fajrianur
-follow @hackerbyup
